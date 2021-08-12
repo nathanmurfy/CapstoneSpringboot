@@ -19,8 +19,10 @@ see improvement. This is because you push yourself more and are more knowledgeab
 it the perfect problem solver for anybody into weight or even body training.
 
 The target audience?
-
-
+The target audience is for anybody who weight trains and wants to take it seriously. It's for anybody who wants to maximise 
+their training and get bigger. Even if you don't train seriously It's nice to know what you are doing and if you are making any 
+progression. Tracking progress is a great tool and everybody should use it, it makes all the difference. Young or old, no
+matter what or how you look it's the best thing for anybody.
 
 
 
